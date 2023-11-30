@@ -1,0 +1,1 @@
+# Adinkra_Symbols
